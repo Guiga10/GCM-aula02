@@ -1,0 +1,7 @@
+# Atores / Atrizes preferidos
+
+*
+
+*
+
+*
